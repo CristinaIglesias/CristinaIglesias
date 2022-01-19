@@ -3,7 +3,7 @@
 
 
 
-![cristina iglesias](https://user-images.githubusercontent.com/68432004/149180073-7ea1afe6-e9bd-4bc1-8297-b173c274dbd5.png)
+![cristina iglesias (1)](https://user-images.githubusercontent.com/68432004/150098814-6e55049b-ee29-4488-aeee-21b7d236d01b.png)
 
 
 
