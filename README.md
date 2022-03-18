@@ -2,8 +2,9 @@
 
 
 
+![Diseño sin título](https://user-images.githubusercontent.com/68432004/158988493-9346e393-f282-4fee-8b8f-0a823e061f95.jpg)
 
-![cristina iglesias (1)](https://user-images.githubusercontent.com/68432004/150098814-6e55049b-ee29-4488-aeee-21b7d236d01b.png)
+
 
 
 
